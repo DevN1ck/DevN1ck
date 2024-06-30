@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @DevN1ck
+- 👀 I’m interested in Developing
+- 💞️ I’m looking to collaborate on ...
+- 📫 How to reach me on discord my user is: DevN1ck
